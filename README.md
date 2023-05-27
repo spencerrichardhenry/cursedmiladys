@@ -1,0 +1,1 @@
+To see instructions how to mint, follow [dedpepe's wonderful thread](https://twitter.com/DedPepes/status/1661779187554992129?s=20)
